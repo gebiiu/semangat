@@ -1,0 +1,2 @@
+# semangat
+seamangat1
